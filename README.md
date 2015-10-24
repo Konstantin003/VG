@@ -1,2 +1,0 @@
-# VG
-Godina
